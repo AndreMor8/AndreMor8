@@ -1,4 +1,4 @@
-A 17 year old boy who likes computer science, programming and cartoon's animation for children.
+A 18 year old boy who likes computer science, programming and cartoon's animation for children.
 
 I love programming, some of my projects highlight my skills as a programmer.
 
